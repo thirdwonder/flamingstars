@@ -1,8 +1,6 @@
 ![](https://media.tenor.com/URba6GQC9aYAAAAi/seal-phoque.gif)
 
 
-Touched by angels though
-I fall out of grace.
 <!--
 **powcard/powcard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
