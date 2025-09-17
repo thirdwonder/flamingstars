@@ -1,5 +1,5 @@
-did you find a four leaf clover?   
-did you hope that i'd come over?   
+did you find a four leaf clover   
+did you hope that i'd come over   
 here i am, and i might never leave again   
 
 
