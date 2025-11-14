@@ -1,5 +1,5 @@
-i never thought that i would hear you say that i'm who you hold dear   
-more than anyone else or at least not in the same way
+I wander through these empty halls   
+As the moon casts shadows of just me upon the walls   
 
 
 <!--
