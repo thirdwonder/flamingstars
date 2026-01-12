@@ -1,7 +1,7 @@
 I wander through these empty halls   
 As the moon casts shadows of just me upon the walls   
    
-<img width="340" height="312" alt="image" src="https://github.com/user-attachments/assets/fff52042-96c2-4c27-b777-4d3660dc3e02" />
+<img width="340" height="312" alt="image" src="https://i.pinimg.com/736x/27/d3/2c/27d32cc30f137e51bdea96552420fdce.jpg" />
 
 <!--
 **powcard/powcard** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
